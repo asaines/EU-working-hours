@@ -1,2 +1,3 @@
 # working-hours-EU
-![image](https://github.com/user-attachments/assets/27e15417-26af-451d-aa7b-cf2dd6fa7631)
+![image](https://github.com/user-attachments/assets/8951abc1-0844-4245-8821-753c74f54344)
+
